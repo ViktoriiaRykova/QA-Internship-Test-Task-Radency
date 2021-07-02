@@ -1,0 +1,1 @@
+# QA-Internship-Test-Task-Radency
